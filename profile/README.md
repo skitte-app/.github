@@ -43,4 +43,3 @@ stomach believe brass word always rent crawl weasel labor abandon unveil shallow
 ***
 
 ### Copyright  | 202&#48;  Skitte
-"# .github" 
